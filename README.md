@@ -10,6 +10,7 @@ please note that i do rarely roleplay characters from problematic media, but the
 ========================= 
 # ABOUT ME
 i like tomb serial slashing a lot. it is cool. awesome comic
+
 I usually attend labs with my friend or whatever other silly roleplay i'm willing to put up with, and we rarely host our own SCP lab (link for that is https://scpsite303.straw.page/ if you wanted it for some reason)
 
 
