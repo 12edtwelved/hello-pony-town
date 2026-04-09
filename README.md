@@ -6,6 +6,7 @@ dni if you are a proshipper, racist, homophobe, etc. I'm likely to mute/hide you
 
 please note that i do rarely roleplay characters from problematic media, but these are always rewrites/redesigns of the characters. I do not support the original creators of them at all and i do my best to exclude any problematic behaviors from said characters.
 (i have a lot of fun rewriting problematic medias, i apologize)
+
 ========================= 
 # ABOUT ME
 i like tomb serial slashing a lot. it is cool. awesome comic
